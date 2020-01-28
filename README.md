@@ -6,5 +6,5 @@
 ## External links
 - for languages that are similar to Solresol, I have little information in my other conlanging repository: https://github.com/nan0s7/conlanging
 - the Wikipedia page on Solresol has been almost completely re-written by myself, but is currently slightly out of date and not totally complete: https://en.wikipedia.org/wiki/Solresol
-- a page on the Sidosi Wiki containing a list of examples from official documentation, currently incomplete: https://www.sidosi.org/wiki/Official_examples
+- a page on the Sidosi Wiki containing a list of examples from official documentation, currently incomplete: https://www.sidosi.org/wiki/Official_examples Please note that some of the French to English translations may not be 100% accurate.
 - a page on the Sidosi Wiki detailing how Solresol uses parts of speech: https://www.sidosi.org/wiki/Parts_of_speech
