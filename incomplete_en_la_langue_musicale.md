@@ -1,3 +1,6 @@
+Translated, researched and described by nan0s7
+
+
 Universal musical language
 Invented
 By François Sudre
