@@ -3,15 +3,15 @@
 ### Redôdo dolala (1 dolala)
 Lâa domîfado dosolfami solre sîdoredo. Domîfado lamire sîmilado. Domîfado domiremi sîdoredo.
 
-**Faremi** lâa domîfado dosolfami solre sîdoredo Si, dofa dosolfami solre sîdoredo.
+**Faremi** lâa domîfado dosolfami solre sîdoredo? Si, dofa dosolfami solre sîdoredo.
 
-Faremi lâa domîfado solre... domîfado? Do, dofa **do** dosolfami solre domîfado. Dofa dosolfami solre sîdoredo.
+Faremi lâa domîfado dosolfami solre... domîfado? Do, dofa **do** dosolfami solre domîfado. Dofa dosolfami solre sîdoredo.
 
-**Faremi** lâa domîfado dosolfami solre fâsisoldo? Do, dofa dosolfami solre fâsisoldo. Dofa dosolfami solre sîdoredo. Domîfado dosolfami solre sîdoredo.
+**Faremi** lâa domîfado dosolfami solre fâsisoldo? Do, dofa do dosolfami solre fâsisoldo. Dofa dosolfami solre sîdoredo. Domîfado dosolfami solre sîdoredo.
 
 Faremi lâa domîfado lamire sîmilado? Si, dofa lamire sîmilado.
 
-Faremi sîmilado **laremi** lâa domîfado? Do, sîmilado do lamire domîfado. Sîmilado do lamire. Domîfado lamire. **Domîfado** lamire sîmilado.
+Faremi **sîmilado** laremi lâa domîfado? Do, sîmilado do lamire domîfado. Sîmilado do lamire. Domîfado lamire. **Domîfado** lamire sîmilado.
 
 Faremi sîdoredo domiremi lâa domîfado? Do, sîdoredo do domiremi domîfado. Sîdoredo do domiremi. Domîfado domiremi. Faremi domîfado domiremi sîdoredo? Si, domîfado domiremi sîdoredo.
 
