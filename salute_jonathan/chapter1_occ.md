@@ -2,22 +2,34 @@
 
 ### Redôdo dolala (1 dolala) [unesim may (1 may)]
 Lâa domîfado dosolfami solre sîdoredo. Domîfado lamire sîmilado. Domîfado domiremi sîdoredo.
+
 *(Un) mann sta in (un) cité. (Li) \*mann scri (un) jurnale. (Li) \*mann vide (un) cité.*
 
+
 **Faremi** lâa domîfado dosolfami solre sîdoredo? Si, dofa dosolfami solre sîdoredo.
+
 ***Esque** li mann sta in (un) cité? Yes, il sta in (un) cité.*
 
+
 Faremi lâa domîfado dosolfami solre... domîfado? Do, dofa **do** dosolfami solre domîfado. Dofa dosolfami solre sîdoredo.
+
 *Esque li mann sta in... (un) \*mann? No, il **ne** sta in (un) \*mann. Il sta in (un) cité.*
 
+
 **Faremi** lâa domîfado dosolfami solre fâsisoldo? Do, dofa do dosolfami solre fâsisoldo. Dofa dosolfami solre sîdoredo. Domîfado dosolfami solre sîdoredo.
+
 ***Esque** li mann in (un) tren? No, il ne sta in (un) tren. Il sta in (un) cité. (Li) \*mann sta in (un) cité.*
 
+
 Faremi lâa domîfado lamire sîmilado? Si, dofa lamire sîmilado.
+
 *Esque li mann scri (un) jurnale? Yes, il scri (un) jurnale.*
 
+
 Faremi **sîmilado** laremi lâa domîfado? Do, sîmilado do lamire domîfado. Sîmilado do lamire. Domîfado lamire. **Domîfado** lamire sîmilado.
+
 *Esque (li) **jurnale** scri li mann? No, (li) jurnale ne scri (li) \*mann. (Un) jurnale ne scri. (Un) \*mann scri. (Li) \***mann** scri (li) jurnale.*
+
 
 Faremi sîdoredo domiremi lâa domîfado? Do, sîdoredo do domiremi domîfado. Sîdoredo do domiremi. Domîfado domiremi. Faremi domîfado domiremi sîdoredo? Si, domîfado domiremi sîdoredo.
 
