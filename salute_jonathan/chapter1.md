@@ -15,7 +15,7 @@ Faremi **sîmilado** laremi lâa domîfado? Do, sîmilado do lamire domîfado. S
 
 Faremi sîdoredo domiremi lâa domîfado? Do, sîdoredo do domiremi domîfado. Sîdoredo do domiremi. Domîfado domiremi. Faremi domîfado domiremi sîdoredo? Si, domîfado domiremi sîdoredo.
 
-Mimisoldo dosolfami lâa domîfado? Dofa dosolfami sîdoredo. Fado domîfado lamire? Dofa lamire sîmilado. Fado domîfado domiremi? Dofa domiremi sîdoredo. Dofa dosolfami solre sîdoredo, re dofa lamire sîmilado, re dofa domiremi sîdoredo.
+Mimisoldo dosolfami lâa domîfado? Dofa dosolfami solre sîdoredo. Fado domîfado lamire? Dofa lamire sîmilado. Fado domîfado domiremi? Dofa domiremi sîdoredo. Dofa dosolfami solre sîdoredo, re dofa lamire sîmilado, re dofa domiremi sîdoredo.
 
 Faremi lâa domîfado *dosolfami* solre sîmilado? Do, dofa *lamire* sîmilado. Faremi domîfado domiremi domîfado? Do, dofa do domiremi domîfado; dofa domiremi sîdoredo.
 
