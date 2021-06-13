@@ -50,7 +50,7 @@ Fado faremi sîdoredo? Fami faremi Soolsirêfâ. Mimisoldo Soolsirêfâ? Fami fa
 *Quo es (li) cité? It es Munich. U (es) Munich? It es u li mann sta. U (es li) \*mann? Il (es) in Munich.*
 
 Si, Soolsirêfâ sîdoredo domifâla, re sîdoredo fala. Lâa domîfado solsimisol mire Soolsirêfâ faremi sîdoredo fala, re dofa solsimisol misol fami faremi sîdoredo domifâla. Domîfado domisôlfa. Dofa domilado: "Simi, Soolsirêfâ!" Dofa faremi domîfado fala! \
-*Yes, Munich (es un) grand cité, e (un) bon cité. Li mann pensa que Munich es (un) bon cité, e il pensa que it es (un) grand cité. (Li) \*mann (es) inteligent. Il do: "Salute, Munich!" Il es (un) bon \*mann!*
+*Yes, Munich (es un) cité grand, e (un) cité bon. Li mann pensa que Munich es (un) cité bon, e il pensa que it es (un) cité grand. (Li) \*mann (es) inteligent. Il di: "Salute, Munich!" Il es (un) bon \*mann!*
 
 Lâa domîfado dosolfami re solsimisol: "Mimisoldo fâsisoldo?" Dofa domiremi... dofa domiremi fâsisoldo! Dofa solsimisol: "La fâsisoldo!" Solmimǐ dofa do solsimisol lasi sîmilado re do solsimisol lasi sîdoredo; dofa solsimisol lasi fâsisoldo! \
 *Li mann sta e pensa: "U (es li) tren?" Il vide... il vide (li) tren! Il pensa: "Li tren!" Nu il ne pensa pri (li) jurnale e ne pensa pri (li) cité; il pensa pri (li) tren!*
