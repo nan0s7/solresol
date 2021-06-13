@@ -11,7 +11,7 @@ Faremi lâa domîfado dosolfami solre... domîfado? Do, dofa **do** dosolfami so
 *Esque li mann sta in... (un) \*mann? No, il **ne** sta in (un) \*mann. Il sta in (un) cité.*
 
 **Faremi** lâa domîfado dosolfami solre fâsisoldo? Do, dofa do dosolfami solre fâsisoldo. Dofa dosolfami solre sîdoredo. Domîfado dosolfami solre sîdoredo. \
-***Esque** li mann in (un) tren? No, il ne sta in (un) tren. Il sta in (un) cité. (Li) \*mann sta in (un) cité.*
+***Esque** li mann sta in (un) tren? No, il ne sta in (un) tren. Il sta in (un) cité. (Li) \*mann sta in (un) cité.*
 
 Faremi lâa domîfado lamire sîmilado? Si, dofa lamire sîmilado. \
 *Esque li mann scri (un) jurnale? Yes, il scri (un) jurnale.*
