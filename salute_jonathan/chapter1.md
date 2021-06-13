@@ -1,6 +1,6 @@
-# Redôdo lâfadola
+# Lâfadola redôdo
 
-### Redôdo dolala (1 dolala)
+### Dolala redôdo (dolala 1)
 Lâa domîfado dosolfami solre sîdoredo. Domîfado lamire sîmilado. Domîfado domiremi sîdoredo.
 
 **Faremi** lâa domîfado dosolfami solre sîdoredo? Si, dofa dosolfami solre sîdoredo.

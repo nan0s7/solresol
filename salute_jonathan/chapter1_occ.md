@@ -1,6 +1,6 @@
-# Redôdo lâfadola [unesim capitul]
+# Lâfadola redôdo [capitul unesim]
 
-### Redôdo dolala (1 dolala) [unesim may (1 may)]
+### Dolala redôdo (dolala 1) [may unesim (may 1)]
 Lâa domîfado dosolfami solre sîdoredo. Domîfado lamire sîmilado. Domîfado domiremi sîdoredo. \
 *(Un) mann sta in (un) cité. (Li) \*mann scri (un) jurnale. (Li) \*mann vide (un) cité.*
 
