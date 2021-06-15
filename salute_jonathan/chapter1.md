@@ -33,6 +33,6 @@ Fado faremi sîmilado? Sîmilado faremi mimisoldo lâa domîfado lamire; dofa la
 
 Fado faremi sîdoredo? Fami faremi Soolsirêfâ. Mimisoldo Soolsirêfâ? Fami faremi mimisoldo lâa domîfado dosolfami. Mimisoldo domîfado? Dofa solre Soolsirêfâ.
 
-Si, Soolsirêfâ sîdoredo domifâla, re sîdoredo fala. Lâa domîfado solsimisol mire Soolsirêfâ faremi sîdoredo fala, re dofa solsimisol misol fami faremi sîdoredo domifâla. Domîfado domisôlfa. Dofa domilado: "Simi, Soolsirêfâ!" Dofa faremi domîfado fala!
+Si, Soolsirêfâ sîdoredo domifâla, re sîdoredo fala. Lâa domîfado solsimisol mire Soolsirêfâ faremi sîdoredo fala, re dofa solsimisol mire fami faremi sîdoredo domifâla. Domîfado domisôlfa. Dofa domilado: "Simi, Soolsirêfâ!" Dofa faremi domîfado fala!
 
 Lâa domîfado dosolfami re solsimisol: "Mimisoldo fâsisoldo?" Dofa domiremi... dofa domiremi fâsisoldo! Dofa solsimisol: "La fâsisoldo!" Solmimǐ dofa do solsimisol lasi sîmilado re do solsimisol lasi sîdoredo; dofa solsimisol lasi fâsisoldo!
